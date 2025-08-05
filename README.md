@@ -1,4 +1,4 @@
- ## Induction Program 2025
+## <mark> Induction Program 2025 </mark> 
 
  # GURU NANAK DEV ENGINEERING COLLEGE, LUDHIANA
 
@@ -25,11 +25,20 @@ ______________
 _____________
 
   # **<mark>DAY 1**</mark>
+  
+  |  **Day 1 Preview**  | 
+  |-------------|
+  | Went to Gurudwara Sahib            |
+  | Got refreshment            |
+  | Went to the Auditorium            |
+____________________
 
-  #### Our day began with ***Path*** and ***Kirtan*** at the College Gurudwara Sahib. All the students took blessings from Guru Sahib Ji. Baba Ji prayed to **GOD** for a new and good start to the college for the new students.
-  <https://1drv.ms/i/c/9fca265bcd4cfb2e/EQvdDV4hwaNDnnuGFeM1MM0B4dOMLoVSi79KrIrI-x4EnA?e=TE0hX6>
+  #### 🔶 Our day began with ***Path*** and ***Kirtan*** at the College Gurudwara Sahib. All the students took blessings from Guru Sahib Ji. Baba Ji prayed to **GOD** for a new and good start to the college for the new students. After the prayer, the *Karah Parshad* was distributed among everyone.    <https://1drv.ms/i/c/9fca265bcd4cfb2e/EQvdDV4hwaNDnnuGFeM1MM0B4dOMLoVSi79KrIrI-x4EnA?e=TE0hX6>
+  _______________
+ #### 🔶 As a refreshment in Hostel no. 2 we were served bread pakoras and gulab jamun with tea as well as cold drinks, coffee, etc. After refreshment, we all headed towards the Auditorium . When I reached the auditorium many students were already sitting there and there were rows of flowers on the stage, which looked very beautiful.
+ <https://1drv.ms/i/c/9fca265bcd4cfb2e/ERaE9qdgnM9Ap8Nbmif_Lv4BowX9dQV-YBQVhpfhzfX5KQ?e=jhz4WY>
 
-  ### **Anchor :** *Taranpreet Kaur*
+### **Anchor :** *Taranpreet Kaur*
 
 ## **Today we are celebrating <mark>70th year of excellence</mark>**
 
