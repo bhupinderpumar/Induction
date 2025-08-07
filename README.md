@@ -31,6 +31,9 @@ _____________
   | Went to Gurudwara Sahib            |
   | Got refreshment            |
   | Went to the Auditorium            |
+  | Listened to the lectures |
+  | Department tour | 
+  
 ____________________
 
   #### 🔶 Our day began with ***Path*** and ***Kirtan*** at the College Gurudwara Sahib. All the students took blessings from Guru Sahib Ji. Baba Ji prayed to **GOD** for a new and good start to the college for the new students. After the prayer, the *Karah Parshad* was distributed among everyone.    <https://1drv.ms/i/c/9fca265bcd4cfb2e/EQvdDV4hwaNDnnuGFeM1MM0B4dOMLoVSi79KrIrI-x4EnA?e=TE0hX6>
