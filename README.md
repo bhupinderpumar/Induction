@@ -81,4 +81,46 @@ Sir had completed B.tech Electronics from our college in 1991 batch .
 
 __________________
 
-**Dr. Harpreet Kaur Grewal :**  Mam congratulated us on getting admission in *Guru Nanak Dev Engneering College* and mam welcomed us. Mam introduced us to the college and also told us about the college rules. 
+**Dr. Harpreet Kaur Grewal :**  Mam congratulated us on getting admission in *Guru Nanak Dev Engneering College* and mam welcomed us. Mam introduced us to the college and also told us about the college rules. Mam taught us all about these things: **Passion, Patience, Persistence, Prayer, Preservence, PLacement** and then mam asked everyone to close their eyes and chant the name of **GOD** for 2 minutes. And mam, without taking up much of our time, thanked us and said welcome.
+___________________
+
+**🔹Dr.Parminder Singh :** First of all, Sir congratulated us and welcomed us and said that we are a part of Guru Nanak Dev Engineering College from today. Sir talked a little about **Shaheed Udham Singh Ji** how he witnessed the incident at **Jallianwala Bagh** and thought of talking revenge on the British government on that very day and they fulfilled their plan of revenge. Similar;y, you too should fulfill whatever you think.
+____________________
+
+**🔹Dr. Sehijpal Singh :** Like the other teachers, the Principal sir also congratulated us, and told us a little about the college without taking up much of our time and thanked us. 
+_____________________
+
+### Department Tour
+After the break, we were given a tour of our departments.
+We were shown all the labs once. After showing us the labs, we were seated in the classrooms and one by one the teachers came and explained their respective subject's details. 
+_____________________
+
+# <mark> DAY 2 </mark>
+
+### **Anchor :** *Harleen Kaur*
+
+### <mark>Addressed by : </mark>
+Today is our **Buddy4study** session and these teachers came to tell us about it. 
+
+**▪️Manoj Kumar**
+
+**▪️Manish Kumar**
+
+**▪️Shivam Sharma**
+
+They told us how Buddy4study works and what scholarships it offers. They said that Buddy4study runs on **CSR** funds. Buddy4Study is run by a team of individuals dedicated to making scholarships accessible to students. This platform was co-founded by Ashutosh Kumar Burnwal and Raj Kishor.  This platform aims to simplify the process of finding and applying for scholarships for students facing financial difficulties. This platform has helped over 9 million students find suitable scholarships. They told us about the **Satya Scholarship** how to apply for it and how we will get it . This session was very helpful for us. We will be very grateful to the teachers who gave us so much information about **Buddy4study .** 
+____________________
+
+### Learn about Github
+
+Our seniors told us about **Github** and how this platform can be useful for us. They guided us on how to ceate an account on Github and how to operate it. They called a student on stage and created his account and while clearing the steps, asked us to create our account. This session was very useful for us. 
+
+_____________________
+
+# <mark>DAY 3</mark>
+Our program began with eyes closed, by reciting the **Mool Mantra .** Hardeep Kaur Grewal Mam inspired us to close our eyes and meditate. 
+
+### Today's Session is about Science and Spirituality. Today's session is by Dr. Jaswinder Singh Ji. 
+Sir has been a former incharge of *Circle Inspection Team Punjab* , former *Assistant State Project Director (Science) Punjab* , Lecturer in Physics . 
+Dr. Jswinder Singh conducted an engaging and interactive session highlighting the deep connections among **Science, Mathematics, Spirituality, and Self-awareness .** 
+Sir told us about the word **Ek Oankar .**
