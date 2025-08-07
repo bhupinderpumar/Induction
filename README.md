@@ -39,7 +39,7 @@ ____________________
   #### 🔶 Our day began with ***Path*** and ***Kirtan*** at the College Gurudwara Sahib. Students from CS and IT departments were sitting in the Gurudwara Sahib and the Paath was going on. There was complete peace in the Darbar Sahib. All the students took blessings from Guru Sahib Ji. Baba Ji prayed to **GOD** for a new and good start to the college for the new students. After the prayer, the *Karah Parshad* was distributed among everyone.   
   <https://1drv.ms/i/c/9fca265bcd4cfb2e/EQvdDV4hwaNDnnuGFeM1MM0B4dOMLoVSi79KrIrI-x4EnA?e=TE0hX6>
   _______________
- #### 🔶 As a refreshment in Hostel no. 2 we were served bread pakoras and gulab jamun with tea as well as cold drinks, coffee, etc. After refreshment, we all headed towards the Auditorium . When I reached the auditorium many students were already sitting there and there were rows of flowers on the stage, which looked very beautiful.
+   #### 🔶 As a refreshment in Hostel no. 2 we were served bread pakoras and gulab jamun with tea as well as cold drinks, coffee, etc. After refreshment, we all headed towards the Auditorium . ***The NCC Cadets were standing outside the auditorium in their uniforms.*** When I reached the auditorium many students were already sitting there and there were rows of flowers on the stage, which looked very beautiful. My heart was happy to see all this. 
  <https://1drv.ms/i/c/9fca265bcd4cfb2e/ERaE9qdgnM9Ap8Nbmif_Lv4BowX9dQV-YBQVhpfhzfX5KQ?e=jhz4WY>
 
 ### **Anchor :** *Taranpreet Kaur*
