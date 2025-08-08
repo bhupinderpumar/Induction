@@ -77,8 +77,6 @@ ___________________
 
 Insights of sir on civic responsibility and engineering excellence truly inspired us to think beyond the classroom .
 
-https://1drv.ms/v/c/9fca265bcd4cfb2e/ETpPIm_oN41NhDj58rsBpJsBOjHQgZ6rHXWo5ftz2lNgRQ?e=C63NuG
-
 **🔸Er. Rakesh Kumar -** *GNDEC Alumnus, ADC Ludhiana.*
 
 Sir had completed B.tech Electronics from our college in 1991 batch . 
