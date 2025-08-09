@@ -128,7 +128,7 @@ Dr. Jswinder Singh conducted an engaging and interactive session highlighting th
 Sir told us about the word **Ek Oankar .**
 
 ######
- + In Sikhism, **" Ek Onkar"** is fundamental concept and a visual representing the oneness of **God .** The numerical symbol **108** is not directly related to Ek Onkar itself, but it is a number often used in Sikh devotional practices, particularly when reciting practices, particularly when reciting prayers or mantras like **Mool Mantar** which includes Ek Onkar, 108 times . 
+ + In Sikhism, **" Ek Onkar"** is fundamental concept and a visual representing the oneness of **God .** The numerical symbol **108** is not directly related to Ek Onkar itself, but it is a number often used in Sikh devotional practices, particularly when reciting prayers or mantras like **Mool Mantar** which includes Ek Onkar, 108 times . 
 
  ### Ek Onkar : 
 
