@@ -126,3 +126,19 @@ Our program began with eyes closed, by reciting the **Mool Mantra .** Hardeep Ka
 Sir has been a former incharge of *Circle Inspection Team Punjab* , former *Assistant State Project Director (Science) Punjab* , Lecturer in Physics . 
 Dr. Jswinder Singh conducted an engaging and interactive session highlighting the deep connections among **Science, Mathematics, Spirituality, and Self-awareness .** 
 Sir told us about the word **Ek Oankar .**
+
+######
+ + In Sikhism, **" Ek Onkar"** is fundamental concept and a visual representing the oneness of **God .** The numerical symbol **108** is not directly related to Ek Onkar itself, but it is a number often used in Sikh devotional practices, particularly when reciting practices, particularly when reciting prayers or mantras like **Mool Mantar** which includes Ek Onkar, 108 times . 
+
+ ### Ek Onkar : 
+
+    Meaning : Ek Onkar translates to "One God" or "God is One".
+
+    Symbol : The symbol is a combination of the numerical "1" (EK) and the word "Onkar", which is connected to the sound "Om" and signifies the absolute reality. 
+
+    
+
+### 108 and Sikh Devotion : 
+    Mala :  The number 108 is commonly used in Mala beads used for counting recitations of prayers or mantras.
+
+    Mool Mantar :  The Mool Mantar, which includes Ek Onkar, is often recited 108 times during prayer or meditation. 
