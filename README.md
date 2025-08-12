@@ -136,12 +136,31 @@ Sir told us about the word **Ek Oankar .**
 
     Symbol : The symbol is a combination of the numerical "1" (EK) and the word "Onkar", which is connected to the sound "Om" and signifies the absolute reality. 
 
-    
-
 ### 108 and Sikh Devotion : 
     Mala :  The number 108 is commonly used in Mala beads used for counting recitations of prayers or mantras.
 
     Mool Mantar :  The Mool Mantar, which includes Ek Onkar, is often recited 108 times during prayer or meditation.
+    
+Sir told us about Science focuses on objective, empirical observation and experimentation, while spirituality explores subjective experience, meaning, and purpose through introspection and faith. 
+
+1. <mark>**Shared Pursuit of Truth:**</mark>
+
+ Both science and spirituality are fundamentally driven by a desire to understand the truth about reality. Science seeks to uncover the objective laws of nature through observation and experimentation, while spirituality explores the subjective experience of reality through introspection and faith.
+
+2. <mark>**Complementary Approaches:**</mark> 
+
+Some argue that science and spirituality are two sides of the same coin, each providing a unique perspective on the same fundamental questions. Science can provide factual data and insights into the physical world, while spirituality can offer meaning, purpose, and ethical frameworks for how we live in that world.
+
+3. <mark>**Areas of Intersection:**</mark>
+
+*Consciousness:*  
+Both science and spirituality are interested in the nature of consciousness. Science explores the biological and neurological basis of consciousness, while spirituality delves into the subjective experience and potential beyond the physical realm.
+
+*The Nature of Reality:*  
+Science explores the fundamental laws and structures of the universe, while spirituality seeks to understand the deeper meaning and purpose of existence within that reality. 
+
+*Ethics and Values:*  
+Science can inform ethical considerations about the impact of technology and human actions, while spirituality can offer guidance on values and principles for living a meaningful life.     
 
 __________________________
 
