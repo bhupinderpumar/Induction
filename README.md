@@ -187,7 +187,7 @@ _____________________
 
 ### Expert lecture by Dr. Priya Darshini Mam on <mark>"Universal Human Values-2 </mark>
 
-Today, Mam talked about yesterday's topic, how to stay happy all the time. Yesterday, Mam gave us an assignment to make our own timetable and asked 2-3 students about their timetables. 
+Today, Mam talked about yesterday's topic, how to stay happy all the time. Yesterday, Mam gave us an assignment to make our own timetable and asked from 2-3 students about their timetables. 
     
 
     
