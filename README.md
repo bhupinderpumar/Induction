@@ -2,8 +2,7 @@
 
  # GURU NANAK DEV ENGINEERING COLLEGE, LUDHIANA
 
-<https://1drv.ms/i/c/9fca265bcd4cfb2e/EXcThU1GOupNhoUFXn6bZVgB2ujvo42AP2A7sG6pQKGOtw?e=GnNSCs>
-_____________
+_____________________
 
 #### **Name :** *Bhupinder Singh*
 
@@ -17,12 +16,11 @@ _____________
 
 #### **Email :** *bhupinderpumar19942@gmail.com*
 
-______________
+____________________
 
   #### ***Guru Nanak Dev Engineering College*** is one of the oldest engineering intitutions of the northen region situated at ***Gill Park, Ludhiana (Punjab)*** . The foundation stone of the college was laid on ***8 April 1956*** by Hon'ble ***Dr. Rajendra  Prasad*** , the first ***President of India*** . The college is affiliated with ***I.K. GUJRAL PUNJAB TECHNICAL UNIVERSITY*** and approved by ***AICTE*** and ***NBA*** . The college is accredited by ***NAAC*** with an ***A*** grade .
-  <https://1drv.ms/i/c/9fca265bcd4cfb2e/EWcsle1v8W5Kntyysac1OEYBPK2Eb2KXgaDXJ29erkZ7-A?e=n0dt0M>
-
-_____________
+  
+___________________
 
   # **<mark>DAY 1**</mark>
   
@@ -37,10 +35,11 @@ _____________
 ____________________
 
   #### 🔶 Our day began with ***Path*** and ***Kirtan*** at the College Gurudwara Sahib. Students from CS and IT departments were sitting in the Gurudwara Sahib and the Paath was going on. There was complete peace in the Darbar Sahib. All the students took blessings from Guru Sahib Ji. Baba Ji prayed to **GOD** for a new and good start to the college for the new students. After the prayer, the *Karah Parshad* was distributed among everyone.   
-  <https://1drv.ms/i/c/9fca265bcd4cfb2e/EQvdDV4hwaNDnnuGFeM1MM0B4dOMLoVSi79KrIrI-x4EnA?e=TE0hX6>
+ 
   _______________
-   #### 🔶 As a refreshment in Hostel no. 2 we were served bread pakoras and gulab jamun with tea as well as cold drinks, coffee, etc. After refreshment, we all headed towards the Auditorium . ***The NCC Cadets were standing outside the auditorium in their uniforms.*** When I reached the auditorium many students were already sitting there and there were rows of flowers on the stage, which looked very beautiful. My heart was happy to see all this. 
- <https://1drv.ms/i/c/9fca265bcd4cfb2e/ERaE9qdgnM9Ap8Nbmif_Lv4BowX9dQV-YBQVhpfhzfX5KQ?e=jhz4WY>
+   #### 🔶 As a refreshment in Hostel no. 2 we were served bread pakoras and gulab jamun with tea as well as cold drinks, coffee, etc. After refreshment, we all headed towards the Auditorium . ***The NCC Cadets were standing outside the auditorium in their uniforms.*** When I reached the auditorium many students were already sitting there and there were rows of flowers on the stage, which looked very beautiful. My heart was happy to see all this.
+   
+________________________
 
 ### **Anchor :** *Taranpreet Kaur*
 
