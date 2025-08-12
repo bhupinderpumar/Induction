@@ -141,4 +141,34 @@ Sir told us about the word **Ek Oankar .**
 ### 108 and Sikh Devotion : 
     Mala :  The number 108 is commonly used in Mala beads used for counting recitations of prayers or mantras.
 
-    Mool Mantar :  The Mool Mantar, which includes Ek Onkar, is often recited 108 times during prayer or meditation. 
+    Mool Mantar :  The Mool Mantar, which includes Ek Onkar, is often recited 108 times during prayer or meditation.
+
+__________________________
+
+### Expert lecture by Dr. Priya Darshini Mam on <mark>"Universal Human Values-1 </mark>
+
+##### Universal human values, often discussed in the context of value education, include *right understanding,* *physical facility,* and *relationships,* with right understanding taking precedence. Right understanding refers to a holistic understanding of oneself, others, and nature, leading to fulfilling relationships and responsible actions. Physical facility is the need for material possessions and resources, *but it is secondary to relationships and right understanding.* Fulfillment in relationships, based on mutual trust and respect, is crucial for individual and societal well-being.
+
+### <mark>Elaboration:
+
+#### Right Understanding:
+This is the foundation for all other values. It involves understanding the purpose of human life, the interconnectedness of all things, and the nature of happiness and prosperity. It's about recognizing what truly fulfills us and guides us towards ethical and harmonious living.
+
+#### Physical Facility:
+This refers to the material resources needed for sustenance and comfort. While necessary, physical facility is not the ultimate source of happiness or fulfillment. Human beings have a tendency to overemphasize physical possessions, often at the expense of relationships and right understanding.
+
+#### Relationships:
+Human beings are social creatures, and meaningful relationships are essential for happiness and well-being. These relationships should be built on trust, respect, and mutual understanding, rather than on material possessions or superficial interactions. Fulfillment in relationships is crucial for a harmonious society. 
+
+#### Prioritization:
+<mark>The correct priority is:</mark> ***right understanding, relationships, and then physical facility.*** Right understanding helps us to correctly assess our needs for physical facilities and to build fulfilling relationships. Neglecting right understanding and prioritizing physical facility can lead to unhappiness and conflict. 
+_____________________
+
+# <mark> DAY 4 </mark>
+
+### Expert lecture by Dr. Priya Darshini Mam on <mark>"Universal Human Values-2 </mark>
+
+Today, Mam talked about yesterday's topic, how to stay happy all the time. Yesterday, Mam gave us an assignment to make our own timetable and asked 2-3 about their timetables. 
+    
+
+    
