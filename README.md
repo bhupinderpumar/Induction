@@ -83,7 +83,7 @@ Sir had completed B.tech Electronics from our college in 1991 batch .
 
 __________________
 
-**Dr. Harpreet Kaur Grewal :**  Mam congratulated us on getting admission in *Guru Nanak Dev Engneering College* and mam welcomed us. Mam introduced us to the college and also told us about the college rules. Mam taught us all about these things: **Passion, Patience, Persistence, Prayer, Preservence, PLacement** and then mam asked everyone to close their eyes and chant the name of **GOD** for 2 minutes. And mam, without taking up much of our time, thanked us and said welcome.
+**🔹Dr. Harpreet Kaur Grewal :**  Mam congratulated us on getting admission in *Guru Nanak Dev Engneering College* and mam welcomed us. Mam introduced us to the college and also told us about the college rules. Mam taught us all about these things: **Passion, Patience, Persistence, Prayer, Preservence, PLacement** and then mam asked everyone to close their eyes and chant the name of **GOD** for 2 minutes. And mam, without taking up much of our time, thanked us and said welcome.
 ___________________
 
 **🔹Dr.Parminder Singh :** First of all, Sir congratulated us and welcomed us and said that we are a part of Guru Nanak Dev Engineering College from today. Sir talked a little about **Shaheed Udham Singh Ji** how he witnessed the incident at **Jallianwala Bagh** and thought of talking revenge on the British government on that very day and they fulfilled their plan of revenge. Similar;y, you too should fulfill whatever you think.
@@ -187,7 +187,7 @@ _____________________
 
 ### Expert lecture by Dr. Priya Darshini Mam on <mark>"Universal Human Values-2 </mark>
 
-Today, Mam talked about yesterday's topic, how to stay happy all the time. Yesterday, Mam gave us an assignment to make our own timetable and asked 2-3 about their timetables. 
+Today, Mam talked about yesterday's topic, how to stay happy all the time. Yesterday, Mam gave us an assignment to make our own timetable and asked 2-3 students about their timetables. 
     
 
     
